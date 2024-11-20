@@ -72,8 +72,8 @@ en mi boca sed,</br>
 sudores frios,</br>
 y la sangre caliente a la vez,</br>
 temblores extraños.</br>
-Un sueño debió ser,
-o un viaje quizas,
-no se,
-lo unico certero,
-que volveré.
+Un sueño debió ser,</br>
+o un viaje quizas,</br>
+no se,</br>
+lo unico certero,</br>
+que volveré.</br>
