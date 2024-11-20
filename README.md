@@ -1,6 +1,6 @@
 # Un-viaje-psicodelico
-Cierro los ojoc,</br>
-una oscurdidad deslumbrante,</br>
+Cierro los ojos,</br>
+una oscuridad deslumbrante,</br>
 me alumbra el camino,</br>
 de un extraño pasaje.</br>
 Me transporté de repente,</br>
